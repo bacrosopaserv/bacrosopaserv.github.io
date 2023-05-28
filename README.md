@@ -1,2 +1,0 @@
-# bacrosopaserv.github.io
-Dumb
